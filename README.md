@@ -52,7 +52,7 @@ $$\color{#523943}{\text{𝑠𝑖𝑛𝑘 𝑠𝑎𝑖𝑘𝑜,𝑘𝟶𝑑𝟺�
 $$\color{#523943}{\text{𝑡.𝐴.𝑇.𝑢, 𝑖𝑙𝑦ℎ𝑖𝑟𝑦𝑢, 𝐸𝑙𝑙𝑖𝑠𝑎𝑟, 𝑀𝑜𝑙𝑐ℎ𝑎𝑡 𝐷𝑜𝑚𝑎, 𝐽𝑜𝑒𝑦 𝐶𝑎𝑠ℎ, 𝐵𝑟𝑖𝑡𝑛𝑒𝑦 𝑆𝑝𝑒𝑎𝑟𝑠, 𝑆𝑦𝐾𝑜 }}$$ 
 </details>
 
-![weak_hero.png](weak_hero.png) ![nn.png](nn.png) ![worldofkanako.png](worldofkanako.png) ㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=scraying&color=523943)
+![weak_hero.png](weak_hero.png) ![nn.png](nn.png) ![worldofkanako.png](worldofkanako.png)![l4ever.png](l4ever.png)![lilya.png](lilya.png)ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=scraying&color=523943)
 
 ![oi.png](oi.png)
 
