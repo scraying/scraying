@@ -54,6 +54,8 @@ $$\color{#523943}{\text{𝑡.𝐴.𝑇.𝑢, 𝑖𝑙𝑦ℎ𝑖𝑟𝑦𝑢, �
 
 ![weak_hero.png](weak_hero.png) ![nn.png](nn.png) ![worldofkanako.png](worldofkanako.png)![l4ever.png](l4ever.png)![lilya.png](lilya.png)ㅤㅤ![](https://komarev.com/ghpvc/?username=scraying&color=523943)
 
+[click here!](https://pin.it/1js0W4wDb)
+
 ![oi.png](oi.png)
 
 
