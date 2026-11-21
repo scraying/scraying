@@ -42,6 +42,7 @@ $$\color{#523943}{\text{𝐷𝑁𝐼: 𝑡𝑝𝑜ℎ 𝑓𝑎𝑛𝑠, 𝑙𝑜
 
  $$\color{#523943}{\text{𝑟𝑢𝟷 /𝑠𝑎𝑓𝑒 𝑠𝑒𝑟𝑣𝑒𝑟. 𝑛𝑒𝑎𝑟 𝑡ℎ𝑒 𝑏𝑎𝑘𝑒𝑟𝑦, 𝑙𝑜𝑤𝑒𝑟 𝑏𝑒𝑎𝑐ℎ 𝑜𝑟 𝑠𝑝𝑎𝑤𝑛}}$$
 </details>
+
 ![tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png](tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png)
 
  <details>
