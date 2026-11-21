@@ -54,11 +54,15 @@ $$\color{#523943}{\text{𝑠𝑖𝑛𝑘 𝑠𝑎𝑖𝑘𝑜,𝑘𝟶𝑑𝟺�
 $$\color{#523943}{\text{𝑡.𝐴.𝑇.𝑢, 𝑖𝑙𝑦ℎ𝑖𝑟𝑦𝑢, 𝐸𝑙𝑙𝑖𝑠𝑎𝑟, 𝑀𝑜𝑙𝑐ℎ𝑎𝑡 𝐷𝑜𝑚𝑎, 𝐽𝑜𝑒𝑦 𝐶𝑎𝑠ℎ, 𝐵𝑟𝑖𝑡𝑛𝑒𝑦 𝑆𝑝𝑒𝑎𝑟𝑠, 𝑆𝑦𝐾𝑜 }}$$ 
 </details>
 
-ㅤ![](https://komarev.com/ghpvc/?username=scraying&color=523943)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[click here!](https://pin.it/1js0W4wDb)
+ㅤ
 
 
 ![tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png](tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png)
+
+![](https://komarev.com/ghpvc/?username=scraying&color=523943)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[click here!](https://pin.it/1js0W4wDb)
+
+![tumblr_7a115fc55ffaf63de7fcd1548b45b387_c2f2aa1c_400.png](tumblr_7a115fc55ffaf63de7fcd1548b45b387_c2f2aa1c_400.png)
 
  
