@@ -58,7 +58,6 @@ $$\color{#523943}{\text{𝑡.𝐴.𝑇.𝑢, 𝑖𝑙𝑦ℎ𝑖𝑟𝑦𝑢, �
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[click here!](https://pin.it/1js0W4wDb)
 
-![oi.png](oi.png)
 
 
  
