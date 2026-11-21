@@ -1,6 +1,6 @@
 ![oi.png](oi.png)
 
-$$\color{#BD9e91}{\text{──── ୨୧ ────}}$$
+$$\color{#927b6e}{\text{──── ୨୧ ────}}$$
 
 </table
  <details>
