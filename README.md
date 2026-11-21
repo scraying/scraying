@@ -40,10 +40,9 @@ $$\color{#523943}{\text{𝐷𝑁𝐼: 𝑡𝑝𝑜ℎ 𝑓𝑎𝑛𝑠, 𝑙𝑜
 <summary><b> 𝑝𝑙𝑎𝑐𝑒𝑠 𝑤ℎ𝑒𝑟𝑒 𝑖 𝑝𝑙𝑎𝑦 𝑜𝑟 𝑠𝑖𝑡 𝑖𝑛 𝐴𝐹𝐾 : </b></summary>
 <br> 
 
- $$\color{#523943}{\text{𝑟𝑢𝟷 /𝑠𝑎𝑓𝑒 𝑠𝑒𝑟𝑣𝑒𝑟. 𝑛𝑒𝑎𝑟 𝑡ℎ𝑒 𝑏𝑎𝑘𝑒𝑟𝑦, 𝑙𝑜𝑤𝑒𝑟 𝑏𝑒𝑎𝑐ℎ 𝑜𝑟 𝑠𝑝𝑎𝑤𝑛}}$$
+ $$\color{#523943}{\text{𝑟𝑢𝟷 /𝑠𝑎𝑓𝑒 𝑠𝑒𝑟𝑣𝑒𝑟. 𝑛𝑒𝑎𝑟 𝑡ℎ𝑒 𝑏𝑎𝑘𝑒𝑟𝑦, 𝑙𝑜𝑤𝑒𝑟 𝑏𝑒𝑎𝑐ℎ 𝑜𝑟 𝑠𝑝𝑎𝑤𝑛  }}$$
 </details>
 
-![tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png](tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png)
 
  <details>
 <summary><b> 𝑚𝑦 𝑓𝑢𝑣 𝑚𝑢𝑠𝑖𝑐 𝑎𝑟𝑡𝑖𝑠𝑡𝑠 : </b></summary>
@@ -60,5 +59,6 @@ $$\color{#523943}{\text{𝑡.𝐴.𝑇.𝑢, 𝑖𝑙𝑦ℎ𝑖𝑟𝑦𝑢, �
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[click here!](https://pin.it/1js0W4wDb)
 
 
+![tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png](tumblr_2fbe1df259c8baf053f52db2c37e9383_d82ddafb_400.png)
 
  
